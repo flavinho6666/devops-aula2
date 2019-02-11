@@ -1,3 +1,4 @@
 # Jessica Alba
-# Anna Hendrick
+# Johnny Depp
 # Will Smith
+# Bruna Marquesine
